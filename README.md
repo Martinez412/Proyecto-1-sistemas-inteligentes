@@ -58,5 +58,4 @@ Se deben incluir al menos tres artículos científicos o libros que discutan pro
 
 **Fecha de entrega: 11 de marzo de 2025 (GTM -5).**
 
-y el apartado de nombre tambien colocalo osea arriba los nombres de todo eso 
 
